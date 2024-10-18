@@ -1,16 +1,16 @@
 ## Hi there 👋
 
-<!--
+
 **xellsingx/xellsingx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Aqui estão algumas ideias para você começar:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 Atualmente estou estudando
+- 🌱 Atualmente estou fazendo faculdade
+- 👯 Procuro colaborar em varias coisas
+- 🤔 Estou procurando ajuda com a Emily
+- 💬 Pergunte-me sobre nada
+- 📫 Como entrar em contato comigo: ra2803840@gmail.com
+- 😄 Pronomes: ela/dela
+- ⚡ Curiosidade: DORMIR, COMER, OUVIR MÚSICA, MEXER NO CELULAR, TOCAR VIOLÃO E PIANO, JOGAR FF, ETC.
+  
